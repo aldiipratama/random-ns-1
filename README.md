@@ -12,3 +12,4 @@
 </p>
 
 <p>klik ini ya ayang.. <a href="https://cutt.ly/08gMI6L">KLIK INI !</a></p>
+<p>Countdown Ultah nya ayangg.. <a href="https://s.id/1B986">KLIK INI !</a></p>
